@@ -12,6 +12,8 @@
 
 This is my first blog post.
 
+<!-- TEASER_END -->
+
 > Disclaimer: May be I'm not a good writer, but I try to be :-)
 
 For this post, what drives me ;-) is [jasonbraganza's article about how to set up a blog](https://janusworx.com/blog/thoughts-on-setting-up-a-blog/ "jasonbraganza's article about how to set up a blog") and a scene from Loki's fifth episode. you can find below the images of the scene.
