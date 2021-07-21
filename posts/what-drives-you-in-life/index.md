@@ -1,5 +1,5 @@
 <!--
-.. title: What drives you in life :-L
+.. title: What drives you in life ?
 .. slug: what-drives-you-in-life
 .. date: 2021-07-21 18:59:10 UTC+05:30
 .. tags: general,loki,marvel,sylvie,personal thoughts
@@ -9,8 +9,6 @@
 .. type: text
 .. author: Circuit Lover
 -->
-
-# What Drives You in Life :-L
 
 This is my first blog post.
 
