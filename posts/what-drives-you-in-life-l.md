@@ -26,7 +26,7 @@ In the above scene, you can see the character Judge Renslayer asks Hunter B-15 a
 
 Yes, **revenge drives sylvie.** According to the Loki Series, Sylvie is a fugitive variant of Loki. Because, the **Time Variance Authority (TVA)**, which controls time, ruined sylvie's life by capturing her at young age from her timeline. So there is no life for her. But, however she managed to escape and hide from the hands of TVA by jumping from one timeline to another. The characterization of sylvie is like that she never bows down, but feed her vengeance with the aim to kill the head of TVA.
 
-> I suggest you to watch **Loki series**, if you don't what I'm talking about :)
+> I suggest you to watch **Loki series**, if you don't know, what I'm talking about :)
 
 After I've seen this scene,  a question strikes me hard is that, what drives us in our life. Something like we need a driving factor, to create or do something. The driving factor may be anything like end result of what you gonna do; your anger to prove yourself; your own personal experiences; your interest; a social cause; or even money you will get for that thing. So, something we need that drives us, whether to do good or bad things.
 
